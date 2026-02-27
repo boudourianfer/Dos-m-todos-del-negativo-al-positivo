@@ -1,1 +1,2 @@
 # Dos-m-todos-del-negativo-al-positivo
+Si examina usted la emulsión después de haber sido impresionada, no podrá descubrir que haya ocurrido nada. Y sin embargo.se ha producido una modificación: la fugaz imagen proyectada por el objetivo dejó su huella sobre la película. Mas no es posible ver el menor indicio de ella ni con auxilio de la lente más potente. Para que se manifieste es preciso aplicar un tratamiento químico, gracias al cual van apareciendo los detalles, uno a uno, hasta completar la foto. Pero es una fotografía de extraña índole. 
